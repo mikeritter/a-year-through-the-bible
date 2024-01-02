@@ -4,7 +4,7 @@
 
 - Winter: God with us
 - Spring: spreading the gospel
-- Summer: God's chosen people
+- Summer: God's eternal covenant
 - Autumn: exile and anticipation
 
 ## God With Us
@@ -22,3 +22,23 @@
 11. Man On a Mission
 12. From King to Crucifiction: Pre-Easter
 13. He Has Risen: Easter
+
+## Spreading the Gospel
+
+## God's Eternal Covenant
+
+1. God of Creation
+2. God of Grace
+3. God of Justice
+4. God of Promise
+5. God of Righteousness
+6. God of Judgement
+7. God of Restoration
+8. God of Deliverance
+9. ...
+10. ...
+11. ...
+12. ...
+13. ...
+
+## Exile and Anticipation
